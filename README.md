@@ -1,1 +1,0 @@
-# standupplease.github.io
